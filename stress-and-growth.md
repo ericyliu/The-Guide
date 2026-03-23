@@ -1,4 +1,4 @@
-# On Being Bad at Things
+# Stress and Growth
 
 ## We like to think we’re okay with being bad at things.
 
